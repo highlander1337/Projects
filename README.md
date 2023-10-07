@@ -9,6 +9,6 @@ Knowledge applied to real world scenarios from courses on private and free platf
 
 
 
-# Positiions to apply in the future with good benefits (2 ~ 3 years from now on if)
+# Positions to apply in the future with good benefits (2 ~ 3 years from now on)
 
 [Trabalhe Conosco - XMobots®](https://xmobots.com.br/carreiras/)
